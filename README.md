@@ -1,0 +1,3 @@
+This masala dosa recipe will give you a restaurant-style or hotel style masala dosa, where the dosa is crisp and served with delicious potato masala. The recipe post shares both the method of preparing batter as well as the savory potato filling.
+
+Masala dosa is a famous South Indian tiffin snack popular not only in India but outside India too. Masala dosa is on the menu list of many North Indian restaurants too. Though making masala dosa is a long process, but its worth it.
